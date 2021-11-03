@@ -1,4 +1,4 @@
-Tere
+Tere!!
 Alehooop
 
 smh, igav tekst.
